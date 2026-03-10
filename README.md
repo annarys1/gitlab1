@@ -1,1 +1,1 @@
-laimne yamal
+lamine yamal 10

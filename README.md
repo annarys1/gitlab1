@@ -1,1 +1,1 @@
-yamal
+laimne yamal
